@@ -1,3 +1,3 @@
 ### Hi there / Hola 👋
 
-- 📫  How to reach me: @gushiguera on Twitter
+- 📫  How to reach me: originalwonders.com
